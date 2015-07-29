@@ -15,7 +15,7 @@ Information, shared experience, reflection, co-creation. Builds and Activates En
 Generate, prepare, synthesize, prioritize, decide. Diamond processes cultivate and grow collective intention. Great for strategic thinking, negotiation, and group thinking with many variables.
 
 ####Triangle Process
-Imagine a lecture or a podcast series. A whole group gains input from single source. Triangle processes help groups gain shared context, spurring cohesive inquiry in specific directions. 
+Imagine a lecture or a podcast series. A whole group gaining input from single source. Triangle processes help groups gain shared context, spurring cohesive inquiry in specific directions. 
 
 ####Square Process
 Gain diverse inputs from many sources on a single topic. Spur inquiry in unified directions.
