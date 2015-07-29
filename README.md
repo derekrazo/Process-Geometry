@@ -18,7 +18,7 @@ Generate, prepare, synthesize, prioritize, decide. Diamond processes cultivate a
 Triangle processes help groups gain shared context, spurring cohesive inquiry in specific directions. Imagine a lecture or a podcast series.
 
 ####Square Process
-Gain diverse inputs on a single topic (source?). Spur inquiry in unified directions.
+Gain diverse inputs on a single topic. Spur inquiry in unified directions.
 
 ####Star Process
 Gain diverse inputs from many relevant sources on many relevant topics. Spur inquiry in many directions at once.
